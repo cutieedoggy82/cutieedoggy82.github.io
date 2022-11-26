@@ -1,2 +1,2 @@
-# cutieedoggy82.github.io
-Some of cool site
+# Cutiee Doggy's Blog
+Welcome to Cutiee Doggy's Blog!
